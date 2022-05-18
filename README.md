@@ -19,8 +19,8 @@ Education
     *Business / Math / Accounting / Computer Science / Investing*
 
 2021
-:   **Google Data Analytics Certificate** 
-    [Certificate Link](https://coursera.org/share/b55593f84714affd3ab98dd70bc57371)
+:   **Google Data Analytics [Certificate](https://coursera.org/share/b55593f84714affd3ab98dd70bc57371)** 
+    
 
 Experience
 ----------
