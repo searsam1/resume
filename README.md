@@ -5,7 +5,7 @@ Alec Sears
 -------------------     ----------------------------
 Email :                amsears60441@gmail.com
 GitHub :               https://github.com/searsam1     
-Cell :                 303-990-2028
+Cell :                 3..-...-..28
 -------------------     ----------------------------
 
 Education  
